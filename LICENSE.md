@@ -1,4 +1,4 @@
-# 
+# Raro Vegas Pro para PC scripts es el mejor Vegas Pro para PC scripts con rollo de piano y codificación de video. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
